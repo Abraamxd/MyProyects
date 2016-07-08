@@ -1,2 +1,0 @@
-# MyProyects
-ola k ase
